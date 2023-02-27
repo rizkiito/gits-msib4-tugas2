@@ -1,1 +1,2 @@
-# gits-msib4-tugas2
+Nama: Rizki Minta Maito
+Universitas : Malikussaleh
